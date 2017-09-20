@@ -54,6 +54,7 @@ Ompu Tuan Situmorang adalah seorang yang bijaksana, cerdas, pintar, pemberani da
 
 Op. Tuan Situmorang berkeinginan agar pomparannya tetap bersatu dan saling bantu membantu disetiap kegiatan diantara pomparannya (turunannya)
 Mengingat bahwa Ompu Tuan Situmorang sudah sangat lanjut usianya, penglihatannya sudah rabun, badannya sudah mulai lemah tetapi semangatnya tetap tinggi untuk membina, menasehati semua pomparannya maka Ompu Tuan Situmorang beserta cicitnya (nininya) sepakat untuk mengadakan upacara pesta ucapan syukur kepada Yang Maha Kuasa atas umur panjang Ompu Tuan Situmorang serta meminta kepada Yang Maha Kuasa agar seluruh cicitnya diberkati dan sekaligus menyampaikan amanah, pesan (Tona) kepada ketujuh cicit (nini) atau anak mangulahinya.
+
 Upacara pesta pun dilaksanakan sesuai yang direncanakan. Seluruh keluarga besar Ompu Tuan Situmorang diundang dan berkumpul. Menyampaikan ucapan syukur kepada Tuhan Yang Maha Kuasa atas berkat, panjang umur yang diberikan kepada Ompu Tuan Situmorang. Kemudian pada acara tersebut Ompu Tuan Situmorang memanggil ketujuh cicitnya (nininya) atau anak Mangulahinya untuk diberi pasu pasu (berkat), arnanah, pesan (Tona), nasehat dan menyampaikan hal-hal sebagai berikut:
 
 >Mulai hari ini kamu ketujuh cicit (nini) saya tetapkan menjadi anak saya, Sayalah orang tuamu.
@@ -64,12 +65,19 @@ Manat Mardongan Tubu, Elek Marboru, Somba Marhula – hula
 Pada waktu upacara pesta yang dilaksanakan Ompu Tuan Situmorang beserta pomparannya, diadakan penyampaian persembahan (sati-sati) yang disampaikan oleh ketujuh cicitnya (nininya) atau anak mangulahinya kepada Ompu Tuan Situmorang. Dan persembahan inii dilaksanakan secara berurutan sebagai berikut:
 
 1. Persembahan (Satti-satti) dan Raja Pande (Lumban Pande). Ompu Tuan Situmorang menerimanya dengan mengatakan Maulate (terima kasih), namalo doho, Pande doho, mangula siulaonmu, kamu kerjakanlah apa yang dapat kamu kerjakan untuk yang baik. Jadi goarmu mulai sadanion Jounma ho Raja Pande (Lumban Pande).
+
 2. Persembahan (Satti-satti)dan Raja Nohor (Lumban Nahor). Setelah diterima Ompu Tuan Situmorang mengucapkan terima kasih dan mengatakan banyak kerjamu dapat kamu selesaikan dengan baik, mau bekerja sama, pandai dan selalu kamu menganggap bahwa kerja itu dapat kamu laksanakan jadi mulai hari ini saya panggilkan namamu menjadi Raja Nahor (Lumban Nahor).
+
 3. Persembahan dan Tuan Suhut (Tuan Suhut Ni Huta). setelah diterima persembahan (Satti-satti), Ompu Tuan Situmorang menyampaikan ucapan terima kasih dan mengatakan kamu adalah orang yang baik bijaksana pandai, selalu mau menjadi tumpuan, mempersatukan abang adikmu dan selalu mau menjadi pendorong untuk kebaikan diantara kalian yang abang beradik maka namamu saya panggilkan Tuan Suhut Ni Huta
+
 4. Persembahan dan Tuan Ringo. Setelah di terima persembahan (satti — satti), Ompu Tuan Situmorang mengucapkan terima kasih, mengatakan : Kamu adalah orang yang baik dan yang banyak bicara, kamu selalu banyak menyampaikan hal - hal yang perlu diketahui orang lain. Mulai hari ini saya panggilkan kamu menjadi bemama Tuan Ringo.
+
 5. Persembahan dan Sitohang Uruk (Dori Mangambat). Setelah dIterima persembahan (satti-satti), Ompu Tuan Situmorang mengucapkan terima kasih, diletakkan satti-satti tersebut di atas Tohang yang ada didalam rumah bagian uruk (julu), dan mengatakan Kamu adalah orang yang baik, mau bekerjasama dan mau menghargai abang adikmu. Jadi mulai hari ini saya panggilkan namamu Sitohang Uruk.
+
 6. Persembahan dan Sitohang Tonga - tonga (Raja Itubungna). Setelah diterima persembahan (satti - satti), Ompu Tuan Situmorang mengucapkan terima kasih, diletakkan satti-satti tersebut di atas Tohang yang ada didalam rumah bagian tengah dan mengatakan: Kamu adalah orang yang baik, mau bekerjasama, rajin, dan mau hormat menghormati. Maka saya panggilkan namamu Sitohang Tonga-tonga.
+
 7. Persembahan dan Sitohang Toruan (Ompu Bona Ni Onan). Setelah diterima persembahan (satti - satti), Ompu Tuan Situmorang mengucapkan terima kasih, diletakkan satti-satti tersebut di atas Tohang yang ada didalam rumah bagian hilir (Toruan atau Jae) dan mengatakan: Kamu adalah orang yang baik, bekerja keras, mau bekerja sama, rajin, dan mau hormat menghormati serta di senangi. Maka saya panggilkan namamu Sitohang Toruan.
+
 > Catatan:
 >> a. Nama-nama (panggilan) yang dibuat / ditetapkan oleh Ompu Tuan Situmorang kepada ketujuh cicitnya (nininya) atau anak mangulahinya adalah nama yang balk sesuai karakter, sifat, tempat kejadian (pelaksanaan) dan masing-masing cicitnya (nininya). <br>
 b. Nama-nama dan ketujuh cicitnya (nininya) atau anak mangulahi atau nama anak Ompu Tuan Situmorang inilah yang menjadi nama populer dikalangan pompanan Situmorang yaitu : Penyebutan atau pemanggilan Situmorang Sipitu Ama
@@ -93,4 +101,4 @@ Kami mohon di maafkan
 Horas Tondi Madingin
 Pir Tondi Matogu
 
-**from : Keluarga BESAR Situmorang (Facebook Page)**
+*from : Keluarga BESAR Situmorang (Facebook Page)*
