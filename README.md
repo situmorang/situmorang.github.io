@@ -2,4 +2,4 @@
 
 Welcome to Situmorang Web profile 
 
-[http://situm.org](http://situm.org)
+[http://situmorang.github.io](http://situmorang.github.io)
